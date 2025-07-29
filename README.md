@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AKMessi
-- 👀 I’m interested in excelling in every possible realm of human endeavour.
+- 👀 I’m interested in dominating every possible realm of human endeavour.
 
 <!---
 AKMessi/AKMessi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
